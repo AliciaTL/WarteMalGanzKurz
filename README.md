@@ -1,2 +1,3 @@
 # WarteMalGanzKurz
-# WarteMalGanzKurz
+(\/) (;,,;) (\/)
+WHY NOT ZOIDBERG
